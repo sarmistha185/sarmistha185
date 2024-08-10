@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sarmistha185
+- 👋 Hi, I’m @sarmisthapradhan
 - 👀 I’m interested in designing websites and animated videos.
 - 🌱 I’m currently learning graphic designing.
 - 💞️ I’m looking to collaborate on web designer.
